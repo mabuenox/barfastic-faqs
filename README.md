@@ -1,3 +1,8 @@
+# Preguntas frecuentes
+
+- [Qué es la dieta BARF](#Qué es la dieta BARF)
+- [Mejoras que vamos a observar con la alimentación natural BARF](#Mejoras que vamos a observar con la alimentación natural BARF)
+
 ## Qué es la dieta BARF
 
 **B.A.R.F**, es el acrónimo de **Bones And Raw Food** (Huesos Y Comida Cruda) o **Biologically Appropriate Raw Food** (Comida Cruda Biológicamente Apropiada). Ambos son correctos y se refieren a lo mismo.
