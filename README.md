@@ -1,7 +1,10 @@
 # Preguntas frecuentes
 
 - [Qué es la dieta BARF](#qué-es-la-dieta-barf)
+- [Haz la transición a BARF con una dieta blanda](#haz-la-transición-a-barf-con-una-dieta-blanda)
 - [Mejoras que vamos a observar con la alimentación natural BARF](#mejoras-que-vamos-a-observar-con-la-alimentación-natural-barf)
+- [Le he dado la comida a mi perro y no la quiere](#le-he-dado-la-comida-a-mi-perro-y-no-la-quiere)
+- [Creo que esta comida no le llena, no hace más que pedir](#creo-que-esta-comida-no-le-llena-no-hace-más-que-pedir)
 
 ## Qué es la dieta BARF
 
@@ -14,7 +17,8 @@ En muchos sitios encontrarás la expresión “dieta BARF”, pero es necesario 
 La meta de BARF es **maximizar la salud, longevidad y capacidad reproductiva** de nuestros animales, de modo que se **minimice la necesidad**  **de intervención veterinaria**, y te aseguro que lo consigue.
 
 Esta dieta es **adecuada para cualquier tipo de perro, gato y hurón**, independientemente de su tamaño, su raza o su edad.
-Haz la transición a BARF con una dieta blanda[](https://barfastic.gitbook.io/app#haz-la-transicion-a-barf-con-una-dieta-blanda)
+
+## Haz la transición a BARF con una dieta blanda
 
 Siempre que vayamos a **iniciarnos en una dieta BARF**, debemos comenzar con una **transición suave**, para evitar problemas digestivos, para ello te dejo esta dieta blanda.
 
