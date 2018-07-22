@@ -118,7 +118,7 @@ En este caso si encima ves ansiedad, además de lo dicho antes, puedes dar un **
 
 Una dieta natural es la mejor opción para alimentar a tu perro o gato, sin lugar a dudas. Pero es importante hacerlo bien. Si tu perro o gato no tienen problemas de salud o patologías de relevancia, puedes hacerlo por tu cuenta si le dedicas tiempo y te informas bien. En mi blog encontrarás mucha información, pero si no puedes dedicar el tiempo que merece y sientes que necesitas orientación, entonces puedo ayudarte personalmente.
 
-[** 👩 Contratar un menú a medida**](https://www.naturzoo.com/consultas-barf/)
+👩 [**Contratar un menú a medida**](https://www.naturzoo.com/consultas-barf/)
 
 <div align="right">
     <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
