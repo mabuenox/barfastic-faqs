@@ -78,12 +78,11 @@ Ten en cuenta que si no lo quiere puedes guardarlo en la nevera y esperar a la t
 
 En el caso de **los gatos**, lo **importante es la frescura** por lo que en ellos nada de olor a llevar tiempo fuera y darlo siempre a una **temperatura ambiente-templada**, próximamente tendrás la posibilidad de ver más trucos para iniciar a tu gato en la dieta natural en mi nuevo libro, **dieta natural para gatos**
 
-## Creo que esta comida no le llena, no hace más que pedir
-
 <div align="right">
     <b><a href="#----">↥ volver al índice</a></b>
 </div>
-<br/>
+
+## Creo que esta comida no le llena, no hace más que pedir
 
 ¡Qué esperas! Tu carnívoro doméstico ha descubierto la comida de verdad, normal que quiera más y más, nunca verá fin, esta ¡taaaan rica!!
 
@@ -96,3 +95,7 @@ Los primeros meses **puede que veas que tu perro o gato baja de peso**, está ca
 En este caso si encima ves ansiedad, además de lo dicho antes, puedes dar un **porcentaje más alto de comida**, no te pases mucho, pero a ver si así se sacia más. En un futuro siempre puedes recalcular y bajar la cantidad de comida no pasa nada.
 
 **Si no quieres subir la cantidad de comida** por miedo a engordar o porque ya va algo sobradito de peso, añade agua o [caldo](https://www.naturzoo.com/receta-caldo-de-huesos/), para que le sacie, alimentos bajos en calorías pero saciantes como el pulmón u oblígale a comer sin cuenco, ya sea escondiendo la comida (si puedes) o metiéndola en un juguete interactivo, esto sobre todo para los que dais triturado.
+
+<div align="right">
+    <b><a href="#----">↥ volver al índice</a></b>
+</div>
