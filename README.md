@@ -19,7 +19,7 @@ La meta de BARF es **maximizar la salud, longevidad y capacidad reproductiva** d
 Esta dieta es **adecuada para cualquier tipo de perro, gato y hurón**, independientemente de su tamaño, su raza o su edad.
 
 <div align="right">
-    <b><a href="#preguntas-frecuentes">🏠 volver al índice</a></b>
+    <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
 
 ## Haz la transición a BARF con una dieta blanda
@@ -47,7 +47,7 @@ Es decir, si un perro adulto pesa 20 kg, debemos darle 400 gramos de comida, rep
 **Verduras recomendadas:** Calabaza, calabacín, zanahoria (todas cocinadas y en puré). Elige una carne y una verdura y mantenla durante varios días, si le sienta bien, puedes cambiar de carne o empezar a introducir poco a poco los demás ingredientes de la dieta BARF.
 
 <div align="right">
-    <b><a href="#preguntas-frecuentes">🏠 volver al índice</a></b>
+    <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
 
 ## Mejoras que vamos a observar con la alimentación natural BARF
@@ -73,7 +73,7 @@ Y por último **se aconseja en problemas conductuales** tales como ansiedad por 
 Si después de todo esto no tienes claro que la alimentación BARF es muy superior a cualquier pienso, solo tienes que hacer la prueba un par de meses y observarlo tú mismo, ¡te sorprenderás!
 
 <div align="right">
-    <b><a href="#preguntas-frecuentes">🏠 volver al índice</a></b>
+    <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
 
 ## Le he dado la comida a mi perro y no la quiere
@@ -91,7 +91,7 @@ Ten en cuenta que si no lo quiere puedes guardarlo en la nevera y esperar a la t
 En el caso de **los gatos**, lo **importante es la frescura** por lo que en ellos nada de olor a llevar tiempo fuera y darlo siempre a una **temperatura ambiente-templada**, próximamente tendrás la posibilidad de ver más trucos para iniciar a tu gato en la dieta natural en mi nuevo libro, **dieta natural para gatos**
 
 <div align="right">
-    <b><a href="#preguntas-frecuentes">🏠 volver al índice</a></b>
+    <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
 
 ## Creo que esta comida no le llena, no hace más que pedir
@@ -109,5 +109,5 @@ En este caso si encima ves ansiedad, además de lo dicho antes, puedes dar un **
 **Si no quieres subir la cantidad de comida** por miedo a engordar o porque ya va algo sobradito de peso, añade agua o [caldo](https://www.naturzoo.com/receta-caldo-de-huesos/), para que le sacie, alimentos bajos en calorías pero saciantes como el pulmón u oblígale a comer sin cuenco, ya sea escondiendo la comida (si puedes) o metiéndola en un juguete interactivo, esto sobre todo para los que dais triturado.
 
 <div align="right">
-    <b><a href="#preguntas-frecuentes">🏠 volver al índice</a></b>
+    <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
