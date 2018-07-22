@@ -5,6 +5,7 @@
 - [Mejoras que vamos a observar con la alimentación natural BARF](#mejoras-que-vamos-a-observar-con-la-alimentación-natural-barf)
 - [Le he dado la comida a mi perro y no la quiere](#le-he-dado-la-comida-a-mi-perro-y-no-la-quiere)
 - [Creo que esta comida no le llena, no hace más que pedir](#creo-que-esta-comida-no-le-llena-no-hace-más-que-pedir)
+- [Necesito ayuda de un profesional](#necesito-ayuda-de-un-profesional)
 
 ## Qué es la dieta BARF
 
@@ -112,11 +113,9 @@ En este caso si encima ves ansiedad, además de lo dicho antes, puedes dar un **
     <b><a href="#preguntas-frecuentes">🔝 volver al índice</a></b>
 </div>
 
-## Necesito ayuda
+## Necesito ayuda de un profesional
 
-¿Quieres dar una dieta natural a tu mascota pero no sabes cómo ni por donde empezar?
-
-Una dieta natural es la mejor opción para alimentar a tu perro o gato, sin lugar a dudas. Pero es importante hacerlo bien. Si tu perro o gato no tienen problemas de salud o patologías de relevancia, puedes hacerlo por tu cuenta si le dedicas tiempo y te informas bien. En el [blog de Naturzoo](https://www.naturzoo.com/blog/) encontrarás mucha información, pero si no puedes dedicar el tiempo que merece y sientes que necesitas orientación, entonces puedo ayudarte personalmente.
+Una dieta natural es la mejor opción para alimentar a tu perro o gato, sin lugar a dudas. Pero es importante hacerlo bien. Si tu perro o gato no tienen problemas de salud o patologías de relevancia, puedes hacerlo por tu cuenta si le dedicas tiempo y te informas bien. En el [blog de Naturzoo](https://www.naturzoo.com/blog/) encontrarás mucha información, pero si no puedes dedicar el tiempo que merece y sientes que necesitas orientación, entonces podemos ayudarte personalmente.
 
 👉 [**Contratar un menú a medida**](https://www.naturzoo.com/consultas-barf/)
 
