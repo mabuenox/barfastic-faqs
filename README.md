@@ -1,7 +1,7 @@
 # Preguntas frecuentes
 
 - [Qué es la dieta BARF](#Qué-es-la-dieta-BARF)
-- [Mejoras que vamos a observar con la alimentación natural BARF](#Mejoras-que-vamos-a-observar-con-la-alimentación-natural-BARF)
+- [Mejoras que vamos a observar con la alimentación natural BARF](#mejoras-que-vamos-a-observar-con-la-alimentacion-natural-barf)
 
 ## Qué es la dieta BARF
 
