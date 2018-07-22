@@ -78,11 +78,11 @@ Ten en cuenta que si no lo quiere puedes guardarlo en la nevera y esperar a la t
 
 En el caso de **los gatos**, lo **importante es la frescura** por lo que en ellos nada de olor a llevar tiempo fuera y darlo siempre a una **temperatura ambiente-templada**, próximamente tendrás la posibilidad de ver más trucos para iniciar a tu gato en la dieta natural en mi nuevo libro, **dieta natural para gatos**
 
-<div align="right">
-    <b><a href="#----">↥ back to top</a></b>
-</div>
-
 ## Creo que esta comida no le llena, no hace más que pedir
+
+<div align="right">
+    <b><a href="#----">↥ volver al índice</a></b>
+</div>
 
 ¡Qué esperas! Tu carnívoro doméstico ha descubierto la comida de verdad, normal que quiera más y más, nunca verá fin, esta ¡taaaan rica!!
 
